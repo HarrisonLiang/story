@@ -13,4 +13,4 @@ Jeff got few drinks.
 He saw a hot leopard, but, of course, it was the drink talking.
 Until, the hot leopard walked up to him...
 Then Jeff wanted to pick a fight with his friends cause he thought his friends were hitting on her.
-
+But he cant fight so he let them have her.
