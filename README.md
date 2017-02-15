@@ -10,4 +10,4 @@ Jeff and his friend played volleyball.
 After, they played in the ocean.
 After they played in the ocean they went to a bar.
 Jeff got few drinks.
-He saw a hot leopard.
+He saw a hot leopard, but, of course, it was the drink talking.
