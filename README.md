@@ -2,13 +2,13 @@
 A collaborative story by MMP 460.
 
 A very long time ago, there was a tiger named Jeff.
-He had a friend lion.
-And a Rabbit.
+He had a friend lion named Rabbit.
+And a Rabbit named Paul .
 One beautiful sunny day, they went to the beach.
-Jeff said he is so lonely in the Valentine's Day. 
+Jeff said he was so lonely on Valentine's Day. 
 Jeff and his friend played volleyball.
 After, they played in the ocean.
-After they played in the ocean they went to a bar.
+Then after they played in the ocean they went to a bar.
 Jeff got few drinks.
 He saw a hot leopard, but, of course, it was the drink talking.
 Until, the hot leopard walked up to him...
