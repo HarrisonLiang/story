@@ -6,4 +6,5 @@ He had a friend lion.
 One beautiful sunny day, they went to the beach.
 Jeff said he is so lonely in the Valentine's Day. 
 Jeff and his friend played volleyball.
-After they played volleyball they went to a bar. 
+After, they played in the ocean.
+After they played in the ocean they went to a bar.
