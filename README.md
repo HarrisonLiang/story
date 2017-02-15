@@ -1,4 +1,4 @@
 # story
 A collaborative story by MMP 460.
 
-A very long time ago, there was a tiger named Jeff.
+Once upon a time, there was a tiger named Jeff.
