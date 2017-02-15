@@ -16,3 +16,4 @@ Then Jeff wanted to pick a fight with his friends cause he thought his friends w
 But he cant fight so he let them have her.
 In a turn of events, she felt sorry for Jeff and actually left the friends for Jeff.
 She walked to Jeff again.
+But it turns out, all along, Jeff was actually a vicious bear in disguise!
